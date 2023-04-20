@@ -1,1 +1,0 @@
-On homework2 branch is folder with all screenshots of this homework!
